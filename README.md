@@ -30,4 +30,4 @@
 
 ### 📫 تواصل معي
 
-* **Email:** [My Email](omar.ghass95@gmail.com)
+* **Email:** [omar.ghass95@gmail.com](omar.ghass95@gmail.com)
